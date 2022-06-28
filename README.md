@@ -1,4 +1,4 @@
-# UTS-Manajemen-Proyek
+# Kelompok 2 - Manajemen Proyek
 Kelompok 2
 Azma Yusuf (2022017)
 Budi Prasetyo (2022015)
