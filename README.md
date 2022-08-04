@@ -6,5 +6,4 @@ Kelompok 2:
 - Ricky Arianto (2022010) 
 
 -Link Youtube UTS : https://www.youtube.com/watch?v=Y07O-kQtwpM
-
 -Link Youtube UAS : https://www.youtube.com/watch?v=m10FdpnzQok
